@@ -1,2 +1,2 @@
 # ultrawebos
-Gregto je noob
+Gregto je noobs
